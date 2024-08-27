@@ -1,6 +1,6 @@
 # Hello guys!
 
-I am Janzen 👋🏼
+I am Korius 👋🏼
 
 See my personal web here https://koriuswenda.github.io
 
