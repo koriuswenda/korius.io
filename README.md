@@ -2,6 +2,6 @@
 
 I am Janzen 👋🏼
 
-See my personal web here https://janzenfaidiban.github.io
+See my personal web here https://koriuswenda.github.io
 
 Thank you!
